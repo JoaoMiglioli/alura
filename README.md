@@ -1,3 +1,12 @@
 ### Barbearia Alura
 ↘️Estou estudando HTML↙️
-![](https://tenor.com/pt-BR/view/ultra-instinct-goku-viοlet-gif-24435540)
+
+
+
+
+
+
+
+
+
+![goku] (https://media1.tenor.com/m/uwkPwunWoVoAAAAC/ultra-instinct-goku-vi%CE%BFlet.gif)  
